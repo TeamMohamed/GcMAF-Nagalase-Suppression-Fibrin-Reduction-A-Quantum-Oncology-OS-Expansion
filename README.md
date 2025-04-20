@@ -1,0 +1,2 @@
+# GcMAF-Nagalase-Suppression-Fibrin-Reduction-A-Quantum-Oncology-OS-Expansion
+GcMAF, Nagalase Suppression &amp; Fibrin Reduction – A Quantum Oncology OS Expansion This paper resurrects and reprograms immune stealth evasion systems using ECS logic, macrophage reactivation, fibrin disruption, scalar field harmonics, and quantum-informed tumour de-cloaking. Includes a 23-row × 40+ field dataset for protocol generation.
